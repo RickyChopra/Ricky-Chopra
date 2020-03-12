@@ -1,0 +1,2 @@
+# RickyChopra
+Mr. Ricky Chopra is an experienced corporate litigator &amp; a transactional disputes resolution expert. His support is often sought by international clients including Fortune 500s and large alternate investment funds at the time of structuring of complex legal contracts &amp; during negotiations to address the negative legal impact or potential damage during any future face-off with the other party. Mr. Chopra has been awarded The White Collar Crimes Lawyer in India by Corporate INTL.
